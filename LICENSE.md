@@ -1,4 +1,4 @@
-# 
+# Leve TreeSize plugins para Mac OS | Novo TreeSize plugins para PC Windows. Com protecao de privacidade e gravacao de macros — otimizado para máximo desempenho em cada plataforma.
 
 
 
